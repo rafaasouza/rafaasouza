@@ -1,3 +1,4 @@
+![2bc4cfa54ccf109ad2885289fa250a80_original](https://github.com/user-attachments/assets/d6670cbb-0ca4-4654-924b-e7c195c9c135)
 ## Hi there 👋
 
 <!--
